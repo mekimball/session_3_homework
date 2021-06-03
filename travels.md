@@ -1,0 +1,3 @@
+Australia
+Bali
+Saipan
